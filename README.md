@@ -1,5 +1,6 @@
 # about-me.md
-please read don't copy
+please read don't copy HUGE WIP
+
 
 <p align="center">
   <img src="https://api.visitorbadge.io/api/visitors?path=https://github.com/jirai/YOUR_REPO&label=bunnymates&labelColor=%23655a8b&countColor=%23555555&style=plastic&labelStyle=upper" />
