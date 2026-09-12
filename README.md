@@ -1,6 +1,7 @@
 # about-me.md
 please read don't copy/insp on anything or my ponies! 
-<br> <br> TW:  heavy relgion mentions and imagery ! 
+<br> <br> TW:  heavy relgion mentions and imagery !  (also u guys should all nominate me as ponytowns black forest cookie <3)
+
 
 
 <p align="center">
