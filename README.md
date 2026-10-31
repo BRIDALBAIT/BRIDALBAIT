@@ -5,7 +5,7 @@ please read don't copy/insp on anything or my ponies!
 
 
 <p align="center">
-  <img src="https://api.visitorbadge.io/api/visitors?path=https://github.com/jirai/YOUR_REPO&amp;label=prayers&amp;labelColor=%23852c50&amp;countColor=%23555555&amp;style=plastic&amp;labelStyle=upper">
+ <img src="https://api.visitorbadge.io/api/visitors?path=https://github.com/jirai/YOUR_REPO&amp;label=prayers&amp;labelColor=%23d6afc6&amp;countColor=%23555555&amp;style=plastic&amp;labelStyle=upper">
 </p>
 
 <div align="center"> <img src="https://files.catbox.moe/b8bkuv.webp" width="800">  <br>    ۫⠀  ۫ ⠀ * ۫ ׁ۪𓈒 ⑅ ₍₋︨︡𓇮₋︧︠₎⠀݄ 𑂘⍺ꪱᩙղᎿ ִ    ♱ ⊹ ࣪ ˖    ͜ ⠀ <img src="https://files.catbox.moe/az06u9.gif" width="30"> ⠀ <br>⠀  * ۫ ִ⑅ ˳݂ she 𓏼  hier 𓏼 hym  ᧆ  <img src="https://64.media.tumblr.com/8c8ff24da1159bda753995bc55cb822f/8a79805c334d096e-1b/s75x75_c1/878662f14a09de67b9421203b8a8e99047ed9559.gifv" width="20"> 2010 baby ⁺˖ ⸝⸝ disabled ⁺˖ ⸝⸝ ༉‧₊˚  & disordered  & a system  <img src="https://64.media.tumblr.com/577bebee432c54980f4dbb5a833cdc5a/8a79805c334d096e-40/s75x75_c1/eca4c11becfc5869dd58f88f625a4d30ac2dbbd9.gifv" width="20"> ͚⑅ִ۫  ∿ ₊ ﹕ い ݁ ˳ ۫ lesbian, aroace cupioromantic ! 𝄄། ͈𓈒 ͜ ܲⳊ ✙ ࣪ ݂𓏻 𓈒  ͚⑅ִ۫ black   ྀི˳݂ 𓏪̣̣ᧆ  
