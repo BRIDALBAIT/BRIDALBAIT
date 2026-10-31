@@ -11,7 +11,7 @@ please read don't copy/insp on anything or my ponies!
 <div align="center"> <img src="https://files.catbox.moe/b8bkuv.webp" width="800">  
  <div align="center"> <img src="https://files.catbox.moe/6bold3.png" width="800">
  <br>    ۫⠀  ۫ ⠀ * ۫ ׁ۪𓈒 ⑅ ₍₋︨︡𓇮₋︧︠₎⠀݄ 𑂘⍺ꪱᩙղᎿ ִ    ♱ ⊹ ࣪ ˖    ͜  <img src="https://files.catbox.moe/ux7otq.gif" width="20">⠀ <br>⠀  * ۫ ִ⑅ ˳݂ she 𓏼  hier 𓏼 hym  ᧆ  <img src="https://files.catbox.moe/va1wat.webp" width="20"> 2010 baby ⁺˖ ⸝⸝ disabled ⁺˖ ⸝⸝ ༉‧₊˚  & disordered  & a system  <img src="https://files.catbox.moe/dtbo6k.webp" width="20">  ͚⑅ִ۫  ∿ ₊ ﹕ い ݁ ˳ ۫ lesbian, aroace cupioromantic ! 𝄄། ͈𓈒 ͜ ܲⳊ ✙ ࣪ ݂𓏻 𓈒  ͚⑅ִ۫ black   ྀི˳݂ 𓏪̣̣ᧆ  
-  <img  src="https://files.catbox.moe/3zfjm7.gif" width="20"> ⑅⃝ ݂ ཀ self shipper and objectum <img src="https://64.media.tumblr.com/f21f8854e29e0ceb982fca853c758b7a/8a79805c334d096e-a8/s75x75_c1/dc3e45410b0ba9dddd49ad3ba0c0d4f4d0d1f334.gifv" width="20"> ͡ . ͡𓉳 ྀིₜॱ .godsposal, mortue ͡𓈒୧ ! <img src="https://64.media.tumblr.com/830aefdb418d39d1e066c3c044834e2a/8a79805c334d096e-69/s75x75_c1/508880721c0dee9b2fa288fa0915c24e1e907814.webp" width="20&gt; ༷　 ͜¦ ͜͝ ݁ ˖ 　dont friend request without perm  ₊ ೃ࿔ &lt;br&gt; &lt;img src=" https:="" files.catbox.moe="" 4fbmed.png"=""> <br> 
+  <img  src="https://files.catbox.moe/3zfjm7.gif" width="20"> ⑅⃝ ݂ ཀ self shipper and objectum <img src="https://files.catbox.moe/knfddq.gif" width="20"> ͡ . ͡𓉳 ྀིₜॱ .godsposal, mortue ͡𓈒୧ ! <img src="https://64.media.tumblr.com/830aefdb418d39d1e066c3c044834e2a/8a79805c334d096e-69/s75x75_c1/508880721c0dee9b2fa288fa0915c24e1e907814.webp" width="20&gt; ༷　 ͜¦ ͜͝ ݁ ˖ 　dont friend request without perm  ₊ ೃ࿔ &lt;br&gt; &lt;img src=" https:="" files.catbox.moe="" 4fbmed.png"=""> <br> 
 
 <div align="center"> <br>
   <details>
